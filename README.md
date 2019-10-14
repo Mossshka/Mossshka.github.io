@@ -13,7 +13,7 @@
  so leave!
  i’m done with you goodbye!
   
-  bye!
+  bye.
          
          
          
